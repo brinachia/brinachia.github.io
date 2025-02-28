@@ -1,2 +1,2 @@
 # brinachia.github.io
-Welcome to my portfolio website!
+Welcome to my portfolio website! Please enjoy
